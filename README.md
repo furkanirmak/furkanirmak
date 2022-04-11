@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @furkanirmak
+- 👨‍💻 For me, software is like magic. That's why I want to work in this field now and in the future.
